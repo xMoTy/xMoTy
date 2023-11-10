@@ -9,7 +9,7 @@ Discord: xMoTy#3812 ([Discord](https://discord.gg/bYBNCcn))
 ### :gift_heart: Collections
 SpigotMC: [xMoTy](https://www.spigotmc.org/members/moty.252378/)<br />
 BuiltByBit: [xMoTy](https://builtbybit.com/members/102808/)<br />
-Polymart: [xMoTy](https://polymart.org/user/xmoty.1521)
+Polymart: [xMoTy](https://polymart.org/user/xmoty.1521)<br />
 And here!
 
 ### :rose: My GitHub Stats
